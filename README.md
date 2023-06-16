@@ -1,4 +1,4 @@
-<img src="logo.png" width = "290">
+<img src="3Dexpress - Gray@4x.png" width = "290">
 
 # Description
 At 3DEXPRESS.MY, we take great pride in providing you with an exceptional selection of 3D printing filaments. As part of our commitment to delivering a superior customer experience, we have meticulously prepared Technical Data Sheets (TDS) for all the filaments we offer. These TDS serve as invaluable resources designed to assist you in making informed purchasing decisions.
