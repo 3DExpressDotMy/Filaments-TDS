@@ -17,10 +17,10 @@ Contact us at 3DEXPRESS.MY and let our knowledgeable team guide you through your
 
 You can reach us through the following channels:
 
--Email: 3Dexpress.my@gmail.com
--WhatsApp: +60 1156356248
--Website: www.3dexpress.my
--Our Official Shopee : https://shopee.com.my/3dexpress.my
--Our Official Lazada : https://www.lazada.com.my/shop/3dexpress-my
+- Email: 3Dexpress.my@gmail.com
+- WhatsApp: +60 1156356248
+- Website: www.3dexpress.my
+- Our Official Shopee : https://shopee.com.my/3dexpress.my
+- Our Official Lazada : https://www.lazada.com.my/shop/3dexpress-my
 
 Connect with us today and discover how 3DEXPRESS.MY can elevate your 3D printing endeavors. We look forward to assisting you and being a part of your success.
